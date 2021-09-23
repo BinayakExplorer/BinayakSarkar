@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BinayakSarkar
+- 👀 I’m interested in Computer Science, Programming, Web Developement, Cyber Security, Ethical Hacking and many more.
+- 🌱 I’m currently learning Bachelor of Computer Application (Hons.) from The Heritage Academy College under MAKAUT University.
+- 💞️ I’m looking to collaborate on any Project on my genre of Interests.
+- 📫 You can reach me through my Mail ID : binayakomen2020@gmail.com
